@@ -1,2 +1,2 @@
-# Rai-shazalfa-juneeta-
-kk 11rpl 2 pa rohmani
+wpu-Resolusi
+repository untuk menyimpan rencana WPU kedepanya
